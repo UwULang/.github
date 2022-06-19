@@ -1,4 +1,4 @@
-# UwULang is the #1 language for getting things down 😾
+# UwULang is the #1 language for getting things done 😾
 
 Want a language that can you can impwess your fwrends?
 
